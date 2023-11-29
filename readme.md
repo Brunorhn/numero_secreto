@@ -1,0 +1,1 @@
+Meu arqivo de leitura está pronto.
